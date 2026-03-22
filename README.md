@@ -8,10 +8,6 @@ Unreal Engine Shortcut Desk Pad
 
 유튜브 링크: https://youtu.be/W4Aku_OPC1Y?si=8V76CVoV4A-raqa3
 
-데스크 패드 구매 링크(현금): https://unrealuniverse.tech/deskpad01-kr
-
-데스크 패드 구매 링크(카드): https://marpple.shop/kr/Unreal_Universe/products/23767353
-
 # **[中文]**
 感谢您购买虚幻引擎桌面垫 (Unreal Engine Deskpad)。
 
